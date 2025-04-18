@@ -3,7 +3,7 @@
 
 - 🪐 Im learning **Java, Satistics and Analysis, R, and much more**
 
-- 🌙 How to reach me **emily.sheehan@umail.ucc.ie**
+- 🌙 How to reach me **emilysheehan139@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
